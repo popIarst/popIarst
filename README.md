@@ -1,3 +1,3 @@
 ##### <p align="center">[rentry](https://rentry.co/3bdcbumo)ㅤㅤㅤ&ㅤㅤㅤ[atabook](https://glassanimal.atabook.org/)</p>
-##### <p align="center">![](https://files.catbox.moe/ov1aqe.png)</p>
+##### <p align="center">![](https://8upload.com/image/6ddb3f52be9936ae/image__1_.png)</p>
 ##### <p align="center"> ♡ very inactive. int w caution thanks. </p>
